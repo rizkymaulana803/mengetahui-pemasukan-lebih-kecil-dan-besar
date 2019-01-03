@@ -1,0 +1,1 @@
+# mengetahui-pemasukan-lebih-kecil-dan-besar
